@@ -1,0 +1,2 @@
+# blog
+gboju baba mi
